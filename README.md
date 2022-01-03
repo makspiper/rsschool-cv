@@ -1,1 +1,1 @@
-# rsschool-cv
+https://makspiper.github.io/rsschool-cv/cv
